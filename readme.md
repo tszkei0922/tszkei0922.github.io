@@ -1,1 +1,1 @@
-Shittttt 
+Life is shit.
